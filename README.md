@@ -8,4 +8,4 @@
 
 寻欢阁最新地址：https://www.xhg120.com
 
-寻欢阁永久访问地址：http://xhg2020.com
+寻欢阁永久访问地址：xhg2020.com
